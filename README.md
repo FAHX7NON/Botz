@@ -163,8 +163,7 @@
 
 ## Donate
 - [Saweria](https://saweria.co/zeeoneofc)
-- [Dana](https://j.top4top.io/p_20532posd1.jpg)
-- [Ovo](https://h.top4top.io/p_2053vk0uw1.jpg)
+- [Dana](+62 895-0818-0751)
 
 # Official Group
 - [Group](https://chat.whatsapp.com/Jo3crrYWgfm3HKQPFSAae5)
